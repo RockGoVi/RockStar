@@ -2,7 +2,7 @@
 
 R星 最新地址发布
 
-#导 航 永 久 域 名--Https://rscp.tv
+导 航 永 久 域 名--Https://rscp.tv
 
 ⭐️ 👉 国外下载 ：HttpS://launtu.com
 
