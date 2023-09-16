@@ -1,6 +1,6 @@
 # R星 最新地址发布 
 ## 导 航 永 久 域 名  Https://rscp.tv
-## ⭐️ 👉 国外下载 ：[点我][https://markdown.com.cn](Https://www.wouyta.com/?packer/home)
+## ⭐️ 👉 国外下载 ：[点我](Https://www.wouyta.com/?packer/home)
 ## ⭐️ 👉 国内下载一 ：Https://abc.tongxiandp.xyz/?packer/home
 ## ⭐️ 👉 国内下载二 ：Https://d.fly-pig.com/?packer/home
 ⭐️⭐️⭐️⭐️⭐️⭐️⭐️⭐️⭐️⭐️⭐️⭐️⭐️⭐️⭐️⭐️⭐️⭐️
