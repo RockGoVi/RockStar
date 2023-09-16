@@ -1,5 +1,5 @@
 # R星 最新地址发布 
-## 导 航 永 久 域 名  [点我](Https://rscp.tv)
+## 导 航 永 久 域 名  (Https://rscp.tv)
 ## ⭐️ 👉 国外下载 ：[点我](Https://www.wouyta.com/?packer/home)
 ## ⭐️ 👉 国内下载一 ：[点我](Https://abc.tongxiandp.xyz/?packer/home)
 ## ⭐️ 👉 国内下载二 ：[点我](Https://d.fly-pig.com/?packer/home)
